@@ -22,4 +22,4 @@
 
 立即收藏本站，尽情畅享2025年最值得信赖的成人羞羞免费平台。从现在开始，告别限制、远离广告，真正拥有一个只为你而生的日本AV世界。
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben10000 ）</span> 
